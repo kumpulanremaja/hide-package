@@ -1,4 +1,4 @@
 # HIDE-package
 
 
-yoare ready tutu kun llu mu
+yoare ready tutu kun llu mu belajar ilmu
